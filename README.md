@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JoeSicili21
-- 👀 I’m interested in manga, future tech, gamning, and more
+- 👀 I’m interested in manga, future tech, gaming, and more
 - 🌱 I’m currently learning python, java, and C#
 - 💞️ I’m looking to collaborate on basically anything that interests me
 - 📫 How to reach me Walterwoodiaz#5151 on discord
